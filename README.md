@@ -3,4 +3,4 @@
 ### SOU ESTUDANTE DO COLÉGIO HUMBERTO DE CAMPOS
 #### MINHA TURMA E A 1B
 ##### DISCIPLINA PENSAMENTO COMPUTACIONAL
-[CLIQUE AQUI](https://images.app.goo.gl/aFchTvYR6vqhwyK78
+[CLIQUE AQUI](https://images.app.goo.gl/aFchTvYR6vqhwyK78)
